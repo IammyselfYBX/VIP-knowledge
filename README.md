@@ -1,6 +1,6 @@
-# 资源分类（点击下面分类标题可查看详情）
+# 资源分类
 
-<b><details><summary>一、主流付费平台（原5T=>现8T）</summary></b>
+<b><details><summary>点击展开查看</summary></b>
 
 ## 资源目录
 
