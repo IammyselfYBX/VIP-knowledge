@@ -2,10 +2,8 @@
 
 <b><details><summary>点击展开查看</summary></b>
 
-## 资源目录
-
-实际内容比目录多
-http://51so.vip/1625916
+## 资源目录（还有很多没写进目录）
+http://note.youdao.com/noteshare?id=a01f8f5fea136c7afe61708c2e0638a6
 
 目录可以搜到的资源，有偿分享！支持试听试看，非诚勿扰！
 
